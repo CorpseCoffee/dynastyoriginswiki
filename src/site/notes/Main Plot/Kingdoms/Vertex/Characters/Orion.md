@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/kingdoms/vertex/characters/orion/"}
 ---
 
-★ Forum Link: https://discord.com/channels/1353074719250976848/1458935085511348395
+[Discord Forum](https://discord.com/channels/1353074719250976848/1458935085511348395)
 ★ Out of Character: Vi
 ★ Name: Orion
 ★ Current Kingdom: [[Main Plot/Kingdoms/Vertex/Vertex\|Vertex]]
