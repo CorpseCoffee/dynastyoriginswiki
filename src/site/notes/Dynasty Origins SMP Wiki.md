@@ -7,10 +7,10 @@
 
 ### Kingdoms - Season 3
 [[Main Plot/Kingdoms/Radicis/Radicis\|Radicis]] - Kingdom of Magic lead by [[Main Plot/Kingdoms/Radicis/Characters/Magnus\|Magnus]] (Banana Man)
-[[Main Plot/Kingdoms/Faearum/Faearum\|Faearum]]
-[[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]]
-[[Main Plot/Kingdoms/Marinis/Marinis\|Marinis]]
-[[Main Plot/Kingdoms/Vertex/Vertex\|Vertex]]
+[[Main Plot/Kingdoms/Faearum/Faearum\|Faearum]] - Kingdom of Fairies lead by [[Owlet\|Owlet]] (Sky)
+[[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]] - Kingdom of Vikings lead by [[Mirage\|Mirage]] (Painter)
+[[Main Plot/Kingdoms/Marinis/Marinis\|Marinis]] - Kingdom of Pirates lead by [[Main Plot/Kingdoms/Marinis/NPCs/Opal\|Opal]] (NPC Kingdom)
+[[Main Plot/Kingdoms/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Kiwi\|Kiwi]] (Fishie)
 
 ### Gods - All Seasons
 Currently a W.I.P.
