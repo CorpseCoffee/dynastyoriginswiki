@@ -15,6 +15,14 @@
 ★ Sexuality: Bisexual
 ★ Open for ships?: Yes
 ★ Occupation: Arch Mage of Radicis
+★ Connections: 
+- [[Main Plot/Kingdoms/Radicis/Characters/Copper\|Copper]]  Supplies all the resources he needs for alchemy and tool making 
+- [[Main Plot/Kingdoms/Faearum/Characters/Owlet\|Owlet]] Teaching him how to be a leader.
+- [[Clementine\|Clementine]] Fell in love with them at first sight.
+- [[Main Plot/Kingdoms/Faearum/Characters/Willow\|Willow]] On one of their visits to [[Feaerum\|Feaerum]] Magnus noticed their mana and is teaching them anytime they come to Radicis
+- [[Bunx\|Bunx]]  when they didn't have a home Magnus offered them the room in his attic and allowed use of his garden.
+- [[Noone\|Noone]] distrusts them on account of their arrogance.
+- [[Lilith\|Lilith]] someone Magnus truly considers his best friend. They are the only person to know that he is blind
 
 ★ Abilities: Spew breath, Can fly
 ★ Weaknesses: Cold, Can't sleep if injured
@@ -22,7 +30,7 @@
 ★ Personality: He strives to learn more and more about magic. He gets a little nervous sometimes but is very passionate. He always tries to help others out whenever he can.
 
 
-★ Backstory: Before his birth, Magnus's mother and farther were on an adventure team before settling down in Radicis. A witches curse from their adventuring times caused Magnus to be born a dragon and to go blind by the age of 10. With his father being the leader of Radicis, he always wished to lead after him. One day pirates raided Radicis, killing his mother and kidnapping his sister. A few decades later, his father went off to try and make peace with [[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]], but on his was was killed by [[Mirage\|Mirage]]. Magnus hope he can fill his fathers place.
+★ Backstory: Before his birth, Magnus's mother and farther were on an adventure team before settling down in Radicis. A witches curse from their adventuring times caused Magnus to be born a dragon and to go blind by the age of 10. With his father being the leader of Radicis, he always wished to lead after him. One day pirates raided Radicis, killing his mother and kidnapping his sister. A few decades later, his father went off to try and make peace with [[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]], but on his was was killed by [[Main Plot/Kingdoms/Pruina/Characters/Mirage\|Mirage]]. Magnus hope he can fill his fathers place.
 
 
 ★ Likes: Magic, Flying, Water
