@@ -13,10 +13,10 @@
 ★ Pronouns: He / Him
 ★ Sexuality: Undisclosed
 ★ Occupation: 5th Elder of [[Main Plot/Kingdoms/Radicis/Radicis\|Radicis]], Guardian, Former Wandering Trader
-★ Connections: Founder of Radicis (Unnamed): First true ally, mentor, and moral anchor, Cassius: Former friend and betrayer, The Five Elders of Radicis: Fellow leaders, wary but respectful, Villages and outcasts saved across generations
+★ Connections: Founder of Radicis (Unnamed): First true ally, mentor, and moral anchor, [[Cassius\|Cassius]]: Former friend and betrayer, The Five Elders of Radicis: Fellow leaders, wary but respectful, Villages and outcasts saved across generations
 ★ Skills: Legendary negotiator and merchant, Veteran swordsman, Deep political and cultural knowledge of all kingdoms, Tactical planning and long-term foresight
 ★ Other Abilities: Extreme regenerative abilities, Functional immortality, Manipulation of dead organic matter, Creation, control, and restoration of undead bodies
-★ Weaknesses: Dependence on the amulet, Emotional scars tied to betrayal and loss, thinks that magic is completly hated everywhere even after centuries
+★ Weaknesses: Dependence on the amulet, Emotional scars tied to betrayal and loss, thinks that magic is completely hated everywhere even after centuries
 ★ Personality: Quiet, observant, restrained. Protective of the weak and deeply loyal. Carries guilt but not bitterness. Believes power exists to preserve, not dominate
 ★ Likes: Silence, loyalty, long conversations, rebuilt communities
 ★ Dislikes: Greed, betrayal, persecution of magic (there isn't but he thinks it's common), meaningless violence
@@ -26,4 +26,4 @@
 Height: Around 1.85 m
 Notable Features: Pale, corpse-like skin, white wavy hair, shadowed face, unnatural stillness
 Clothing: Dark layered robes, long cloak, leather belts and pouches, worn boots, a long blade carried across his back
-![Vesper.png](/img/user/Photos/Vesper.png)
+![Vesper.png|300](/img/user/Photos/Vesper.png)

@@ -73,4 +73,4 @@ __Least Favorite Pet__
 
 ★ Appearance: below :]
 - **All art credit goes to Sky**
-![Pasted image 20260308152937.png|400](/img/user/Pasted%20image%2020260308152937.png)
+![Dandelion.png|400](/img/user/Photos/Dandelion.png)
