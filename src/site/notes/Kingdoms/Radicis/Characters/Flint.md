@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/kingdoms/radicis/characters/flint/"}
 ---
 
+★ Out of Character: Nugget / Office
 ★ Name: Flint
 ★ Alias: none unless you would count a random stream of letters and numbers
 ★ Current Kingdom: [[Kingdoms/Radicis/Radicis\|Radicis]]

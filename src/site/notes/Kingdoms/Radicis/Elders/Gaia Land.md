@@ -22,7 +22,7 @@
 ★ Weaknesses: Fire.
 ★ Personality: A very nice and kind old lady, always trying to help out the less fortunate and teach the youth. She is willing to sacrifice everything for the betterment of Radicis
 ★ Likes: Radicis, apples, The Earth, children
-★ Dislikes: Fire, [[Kingdoms/Marinis/Marinis-Testing\|Marinis-Testing]], phantoms
+★ Dislikes: Fire, [[Kingdoms/Marinis/Marinis\|Marinis]], phantoms
 
 ★ Other Details: 
 She is the strongest among all of the elders.

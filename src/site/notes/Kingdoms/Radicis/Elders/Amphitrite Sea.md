@@ -23,7 +23,7 @@ Magnus: Taught him a few things about water magic
 ★ Weaknesses: lighting 
 ★ Personality: A very free spirit who goes where ever the winds flow. Will do anything for her partner Gaia. Is very kind unless provoked first
 ★ Likes: The breeze, water, Gaia
-★ Dislikes: Fire, [[Kingdoms/Marinis/Marinis-Testing\|Marinis-Testing]], Pineapple 
+★ Dislikes: Fire, [[Kingdoms/Marinis/Marinis\|Marinis]], Pineapple 
 ★ Other Details: She will sometimes go missing for a few days. Only returning when Gaia misses them. * They get a guy feeling
 
 ★ Backstory: Should be about 100 words minimum
