@@ -18,7 +18,7 @@
 - [[Main Plot/Kingdoms/Faearum/Characters/Willow\|Willow]] (Cas) - Crush
 - [[Vastly\|Vastly]] (Bell) - Does odd jobs to impress him, lowkey kinda scared of him
 - [[Jared\|Jared]] (Katt) - Is hiding from
-- [[Owlet\|Owlet]] - leader & plays music for them sometimes
+- [[Main Plot/Kingdoms/Faearum/Characters/Owlet\|Owlet]] - leader & plays music for them sometimes
 
 ★ Skills:
 - **Jump** - can jump high

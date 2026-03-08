@@ -8,7 +8,7 @@ There is a rare subspecies of dark oak tree that is only native to the forest of
 Each of these trees have the ability to recycle dying and unused magic to put it to use again. they hold capacity for sentience within them but most of them choose to just act as normal trees since this way they can spread magic out into the world a lot better and help Faearum more efficiently since they don't need to consume much themselves. During the rule of the previous monarchs the 4 trees that existed at the time were presenting as sentient beings since they were getting help from the Queen in terms of magic supply and there wasn't a pale garden that needed magic to combat its spread back then.
 
 Since the trees are all their own people and there's only 5 of them I will list them here
-- [[Harith Aeternus\|Harith Aeternus]]: The King of Faearum before [[Owlet\|Owlet]]. He married into the royal family. became dormant along with the others of his kind when his lover (the Queen) passed away.
+- [[Harith Aeternus\|Harith Aeternus]]: The King of Faearum before [[Main Plot/Kingdoms/Faearum/Characters/Owlet\|Owlet]]. He married into the royal family. became dormant along with the others of his kind when his lover (the Queen) passed away.
 - [[Aveline\|Aveline]]: Acts as a sort of parental figure to the other trees, sweet and caring. The oldest of the 5 trees by far, millions of years old. Went dormant along with the other 4 old trees.
 - [[Sylvette\|Sylvette]]: A bit pretentious and loves shiny things. Decided to become dormant next to a horde of valuables, powering them with magic (beacon)
 - [[Aeris\|Aeris]]: The second youngest (still a few hundred thousand years old so big gap to Sycamore). A little shy, went dormant along with the older trees.
