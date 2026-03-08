@@ -9,7 +9,7 @@
 [[Kingdoms/Radicis/Radicis\|Radicis]] - Kingdom of Magic lead by [[Kingdoms/Radicis/Characters/Magnus\|Magnus]] (Banana Man)
 [[Kingdoms/Faearum/Faearum\|Faearum]]
 [[Kingdoms/Purina/Purina\|Purina]]
-[[Kingdoms/Marinis/Marinis\|Marinis]]
+[[Kingdoms/Marinis/Marinis-Testing\|Marinis-Testing]]
 [[Kingdoms/Vertex/Vertex\|Vertex]]
 
 ### Gods - All Seasons
