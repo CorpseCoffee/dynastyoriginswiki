@@ -11,7 +11,7 @@
 
 **Current Leaders**:
 Arch Mage - [[Main Plot/Kingdoms/Radicis/Characters/Magnus\|Magnus]]
-Elders - [[Main Plot/Kingdoms/Radicis/Elders/Gaia Land\|Gaia Land]], [[Main Plot/Kingdoms/Radicis/Elders/Maxar Thorn\|Maxar Thorn]], [[Main Plot/Kingdoms/Radicis/Elders/Amphitrite Sea\|Amphitrite Sea]], [[Main Plot/Kingdoms/Radicis/Elders/Olin Muammar\|Olin Muammar]], and [[Main Plot/Kingdoms/Radicis/Elders/Vesper\|Vesper]]
+Elders (NPCs) - [[Main Plot/Kingdoms/Radicis/Elders/Gaia Land\|Gaia Land]], [[Main Plot/Kingdoms/Radicis/Elders/Maxar Thorn\|Maxar Thorn]], [[Main Plot/Kingdoms/Radicis/Elders/Amphitrite Sea\|Amphitrite Sea]], [[Main Plot/Kingdoms/Radicis/Elders/Olin Muammar\|Olin Muammar]], and [[Main Plot/Kingdoms/Radicis/Elders/Vesper\|Vesper]]
 
 **Current Residents:**
 [[Main Plot/Kingdoms/Radicis/Characters/Copper\|Copper]] - Ash
