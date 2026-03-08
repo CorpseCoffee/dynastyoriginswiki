@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/dynasty-season-3-home-page/","tags":["gardenEntry"]}
 ---
 
-# Dynasty Season 3 Wiki
+# Dynasty Origins SMP Wiki
 *Made by CorpseCoffee using Obsidian and the My Digital Garden plugin*
 
 ### Kingdoms - Season 3
