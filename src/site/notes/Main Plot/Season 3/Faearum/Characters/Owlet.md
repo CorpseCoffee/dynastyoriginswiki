@@ -25,7 +25,7 @@
 - knows [[Tek Zao\|Tek Zao]] from their kids being playmates
 - met [[Main Plot/Deities/Salem\|Salem]] 100.000 years ago in a cave when he was first created
 - haunted by [[Rusty\|Rusty]]
-- [[Goshe du Tronz\|Goshe du Tronz]] is their worst opp
+- [[Main Plot/Season 3/Vertex/Characters/Goshe du Tronz\|Goshe du Tronz]] is their worst opp
 - [[Maxime Rotahl\|Maxime Rotahl]] works for them as a guard
 - [[Frost\|Frost]] used to work for them
 

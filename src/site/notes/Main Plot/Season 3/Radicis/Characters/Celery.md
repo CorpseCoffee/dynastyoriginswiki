@@ -3,6 +3,7 @@
 ---
 
 # Celery Cromand Roswell Flyir
+★ Out of Character: CheeseChip
 ★ Name: Celery Cromand Roswell Flyir
 ★ Alias: C.C
 ★ Current Kingdom: [[Main Plot/Season 3/Radicis/Radicis\|Radicis]]
@@ -35,5 +36,5 @@ Is also an acquaintance of [[Ren\|Ren]]
 - Height: 5'8"
 - Notable features: White ghost skin. physically a bit above average since she moves heavy objects around, has Dark circles under her eyes due to overuse of the gem, has little golden wings one her head (mechanical wings) and normally looks tired or exhausted with black n royal blue hair
 - Clothing: normally wears whatever she finds first but mostly on fixing she uses brown clothes since they are more easy to wash, she also loves pants or jackets with bags since it's easier to carry stuff on it. In summary she cares more about what's practical. Except for her wings, she uses those just for vanity n for memories. Gloves are the most important part while working so she never takes them off unless she is not working.
-![Pasted image 20260308181301.png|300](/img/user/Pasted%20image%2020260308181301.png)![Pasted image 20260308181316.png|190](/img/user/Pasted%20image%2020260308181316.png)
+![Celery.png|300](/img/user/Photos/Celery.png)![CelerySkin.png|190](/img/user/Photos/CelerySkin.png)
 FUN FACT: She has those mechanical wings bc that was the first thing she made by pure hand at 13 years old, they where inspired in the blazes she saw from far away thinking they looked different from what they really where.

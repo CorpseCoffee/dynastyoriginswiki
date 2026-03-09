@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/faearum/characters/dandelion/"}
 ---
 
+# Dandelion Harper
+★ Out of Character: Solace
 ★ Name: Dandelion Harper
 ★ Alias: 
 ★ Current Kingdom: [[Main Plot/Season 3/Faearum/Faearum\|Faearum]]

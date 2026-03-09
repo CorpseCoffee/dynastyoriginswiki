@@ -17,6 +17,7 @@ Arch Mage - [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]]
 Elders (NPCs) - [[Main Plot/Season 3/Radicis/Elders/Gaia Land\|Gaia Land]], [[Main Plot/Season 3/Radicis/Elders/Maxar Thorn\|Maxar Thorn]], [[Main Plot/Season 3/Radicis/Elders/Amphitrite Sea\|Amphitrite Sea]], [[Main Plot/Season 3/Radicis/Elders/Olin Muammar\|Olin Muammar]], and [[Main Plot/Season 3/Radicis/Elders/Vesper\|Vesper]]
 
 **Current Residents:**
+[[Main Plot/Season 3/Radicis/Characters/Celery\|Celery]] - CheeseChip
 [[Main Plot/Season 3/Radicis/Characters/Copper\|Copper]] - Ash
 [[Main Plot/Season 3/Radicis/Characters/Flint (Rad)\|Flint (Rad)]] - Nugget / Office
 [[Main Plot/Season 3/Radicis/Characters/Gale\|Gale]] - K James
