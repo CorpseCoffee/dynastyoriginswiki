@@ -3,6 +3,7 @@
 ---
 
 # Bandit Zao
+![BanditZao.png|400](/img/user/Photos/BanditZao.png)
 ★ Name: Bandit Zao 
 ★ Alias: Formally Rex [[Bandaroosh\|Bandaroosh]], Sherrif, Rex, Joy-Full cat
 ★ Current Kingdom: [[Solaris\|Solaris]]
@@ -50,6 +51,4 @@ Rex now goes by Bandit Bandaroosh an outlaw known in the deserts, after a glass 
 After walking for a couple days he finds a small town but something about it sparks something in him, hes here after killing 3 men, this here is his second chance.. Second chance, this place is for second chances hes sure of it, he befriends an individual called Mole man and Bandit purchases a small house near the edge of town, Bandit would then see a dog in-front of his house, his first pet, bandit would love it in solaris, and one day he would see a fox strolling infront, he wants a new pet, he jumps on top of the fox and it barks at him introduces themself as rusty, the two sparked a cousin like rivalry.
 
 months after moving into solaris a 17 year old Bandit would walk into a man who would change his life forever, Cody Harper, Cody hated bandit at first for around 10 minutes until they started talking, they quickly became best friends and would do all sorts of adventures together like finding the blacksmith “Lebron James” Hammer, Helping Mr Tyler “The creator” Get all his seeds back and more, Eventually a 19 year old bandit entered the election for next Sheriff and Won, He appointed the person he respected most (And who he wanted to win) Rusty as his Deputy
-
-![BanditZao.png|400](/img/user/Photos/BanditZao.png)
 [Spotify Playlist](https://open.spotify.com/playlist/6osRKKCwDZYglgF7UkAH47?si=6Cwyg6aXQyKIwxSsM-rbLg&pi=a7a54mSNTT234)
