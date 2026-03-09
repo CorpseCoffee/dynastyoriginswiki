@@ -5,7 +5,7 @@
 # Posa
 ⟢**Deity Sheet**⟣
 ⊱Name: Posa
-⊱Symbols: Butterflies, cacoons 
+⊱Symbols: Butterflies, cocoons 
  - When thinking of this deity, What is an object(s) that should first come to mind?
 ⊱God of: Insects
  - What are their domains? (There should be no more then two)
@@ -14,7 +14,7 @@
 ⊱Deity Connections: Clank (Husband)
  - What is their relationship with the other deities?
  - Siblings? Lovers?
-⊱Character Conections: Bandit, the Bandaroosh family (Despises them)
+⊱Character Connections: Bandit, the [Bandaroosh family](Bandaroosh Lineage) (Despises them)
  - Out side of the deities, who are they connected to, whether directly or in-directly?
 
 ⊱Description: A medium sized fairy around 5’8
@@ -22,7 +22,7 @@ blonde hair with wings on there back
  - What do they look like?
   - Height? 5’8
   - Hair color? blonde
-  - Multiple forms? yes, hes a butterfly sometimes 
+  - Multiple forms? yes, he's a butterfly sometimes 
   - Are they more humanoid? yes
 ⊱Personality: Mostly a kind hearted person but with a hatred for the Bandaroosh family, there motivations are to make insect life flourish, they have a good attitude 
   - What are they like? Mostly kind hearted but also extremely chaotic, think of power from chainsawman 

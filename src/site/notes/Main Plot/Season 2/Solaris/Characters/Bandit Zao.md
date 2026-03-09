@@ -51,5 +51,5 @@ After walking for a couple days he finds a small town but something about it spa
 
 months after moving into solaris a 17 year old Bandit would walk into a man who would change his life forever, Cody Harper, Cody hated bandit at first for around 10 minutes until they started talking, they quickly became best friends and would do all sorts of adventures together like finding the blacksmith “Lebron James” Hammer, Helping Mr Tyler “The creator” Get all his seeds back and more, Eventually a 19 year old bandit entered the election for next Sheriff and Won, He appointed the person he respected most (And who he wanted to win) Rusty as his Deputy
 
-![Pasted image 20260309100734.png|400](/img/user/Pasted%20image%2020260309100734.png)
+![BanditZao.png|400](/img/user/Photos/BanditZao.png)
 [Spotify Playlist](https://open.spotify.com/playlist/6osRKKCwDZYglgF7UkAH47?si=6Cwyg6aXQyKIwxSsM-rbLg&pi=a7a54mSNTT234)

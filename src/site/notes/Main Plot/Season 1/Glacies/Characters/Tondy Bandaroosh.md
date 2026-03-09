@@ -30,4 +30,4 @@
 - Height: 6’6
 - Notable features: Yellow Hoodie, Scar across his face
 - Clothing: Yellow hoodie and Beanie
-![Pasted image 20260309093547.png|400](/img/user/Pasted%20image%2020260309093547.png)
+![TonyBandaroosh.png|400](/img/user/Photos/TonyBandaroosh.png)
