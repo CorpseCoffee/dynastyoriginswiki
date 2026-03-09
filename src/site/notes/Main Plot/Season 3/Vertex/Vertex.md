@@ -22,3 +22,12 @@ The original worshipped by the four families were
 [[Main Plot/Deities/Tabeth\|Tabeth]], By the Sheep and Parrots, believing Tabeth was the root of ALL original magic and trusting that Tabeth is who blessed them with their magic
 
 [[Main Plot/Deities/Calor\|Calor]], Also worshipped by the parrots, believing he used magic to set and raise the sun
+
+
+**Current Leader**
+[[Main Plot/Season 3/Vertex/Characters/Kiwi\|Kiwi]] - Fishie
+
+**Residents**
+[[Main Plot/Season 3/Vertex/Characters/Goshe du Tronz\|Goshe du Tronz]] - Duck
+[[Main Plot/Season 3/Vertex/Characters/Micheal\|Micheal]] - Dia
+[[Main Plot/Season 3/Vertex/Characters/Orion\|Orion]] - Vi
