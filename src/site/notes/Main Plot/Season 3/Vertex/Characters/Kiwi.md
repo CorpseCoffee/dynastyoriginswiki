@@ -71,4 +71,4 @@ Height: 2’6
 Notable features: wings on his head, back, hips, and a pair of glasses, 
 Clothing: simple scholar suit with green on the outside and white on the inside
 
-![Pasted image 20260308185623.png|400](/img/user/Pasted%20image%2020260308185623.png)
+![Kiwi.png|400](/img/user/Photos/Kiwi.png)
