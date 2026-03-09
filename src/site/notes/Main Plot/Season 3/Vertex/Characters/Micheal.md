@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/vertex/characters/micheal/"}
 ---
 
+# Micheal Alter Lytton
 ★ Name: Michael Alter Lytton 
 ★ Alias: Mike, O’ bearer mine (what the star calls him)
 ★ Current Kingdom: [[Main Plot/Season 3/Vertex/Vertex\|Vertex]]

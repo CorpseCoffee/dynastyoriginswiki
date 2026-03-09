@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/vertex/characters/orion/"}
 ---
 
+# Orion
 [Discord Forum](https://discord.com/channels/1353074719250976848/1458935085511348395)
 ★ Out of Character: Vi
 ★ Name: Orion
