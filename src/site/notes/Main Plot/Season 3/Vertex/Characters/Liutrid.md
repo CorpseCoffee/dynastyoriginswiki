@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/vertex/characters/liutrid/"}
 ---
 
-Liutrid
+# Liutrid
 ➤ Name: Liutrid
 ➤ Alias: Liut
 
