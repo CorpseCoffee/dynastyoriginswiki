@@ -14,7 +14,7 @@ The people of Faearum are interconnected with the natural magic, which is deeply
 About a decade ago, the last remaining biological member of the royal family passed away. They were unable to have children of their own with their partner due to them being different species, so instead they used adoption to secure the heritage of their kingdom. To this day Faearum is prosperous and rich with magic.
 
 **Current Leaders**:
-Queen/King - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]]
+Queen/King - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] (Sky)
 
 **Current Residents:**
 [[Main Plot/Season 3/Faearum/Characters/Boreas\|Boreas]]
@@ -24,7 +24,6 @@ Queen/King - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]]
 [[Main Plot/Season 3/Faearum/Characters/Lynx\|Lynx]]
 [[Main Plot/Season 3/Faearum/Characters/Mōna\|Mōna]] - Felix
 [[Main Plot/Season 3/Faearum/Characters/Nysa\|Nysa]] - Nyxi
-[[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] - Sky
 [[Main Plot/Season 3/Faearum/Characters/Toby\|Toby]]
 [[Main Plot/Season 3/Faearum/Characters/Willow\|Willow]] - Cas
 [[Main Plot/Season 3/Faearum/Characters/Xavynth\|Xavynth]]
