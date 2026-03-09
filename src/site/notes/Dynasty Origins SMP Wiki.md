@@ -8,7 +8,7 @@
 ### Kingdoms - Season 3
 [[Main Plot/Kingdoms/Radicis/Radicis\|Radicis]] - Kingdom of Magic lead by [[Main Plot/Kingdoms/Radicis/Characters/Magnus\|Magnus]] (Banana Man)
 [[Main Plot/Kingdoms/Faearum/Faearum\|Faearum]] - Kingdom of Fairies lead by [[Main Plot/Kingdoms/Faearum/Characters/Owlet\|Owlet]] (Sky)
-[[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]] - Kingdom of Vikings lead by [[Mirage\|Mirage]] (Painter)
+[[Main Plot/Kingdoms/Pruina/Pruina\|Pruina]] - Kingdom of Vikings lead by [[Main Plot/Kingdoms/Pruina/Characters/Mirage\|Mirage]] (Painter)
 [[Main Plot/Kingdoms/Marinis/Marinis\|Marinis]] - Kingdom of Pirates lead by [[Main Plot/Kingdoms/Marinis/NPCs/Opal\|Opal]] (NPC Kingdom)
 [[Main Plot/Kingdoms/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Kiwi\|Kiwi]] (Fishie)
 
@@ -27,6 +27,7 @@
 [[Main Plot/Deities/Salem\|Salem]] - Conspiracies and Monsters
 [[Main Plot/Deities/Tabeth\|Tabeth]]
 [[Main Plot/Deities/Utros\|Utros]]
+[[Main Plot/Deities/Virilian\|Virilian]] - Festivals and Birds
 [[Main Plot/Deities/Vultheis\|Vultheis]]
 [[Main Plot/Deities/Wrenn\|Wrenn]]
 [[Main Plot/Deities/Zenia\|Zenia]]

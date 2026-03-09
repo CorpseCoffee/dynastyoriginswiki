@@ -15,6 +15,6 @@ Elders (NPCs) - [[Main Plot/Kingdoms/Radicis/Elders/Gaia Land\|Gaia Land]], [[Ma
 
 **Current Residents:**
 [[Main Plot/Kingdoms/Radicis/Characters/Copper\|Copper]] - Ash
-[[Main Plot/Kingdoms/Radicis/Characters/Flint\|Flint]] - Nugget / Office
+[[Main Plot/Kingdoms/Radicis/Characters/Flint (Rad)\|Flint (Rad)]] - Nugget / Office
 [[Main Plot/Kingdoms/Radicis/Characters/Gale\|Gale]] - K James
 [[Main Plot/Kingdoms/Radicis/Characters/Magnus\|Magnus]] - BananaMan
