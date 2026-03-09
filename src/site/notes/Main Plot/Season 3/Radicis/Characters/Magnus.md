@@ -3,7 +3,7 @@
 ---
 
 # Magnus
-★ Out of Character: Banana Man![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
+★ Out of Character: Banana Man![MagnusPiscrew.png|300](/img/user/Photos/MagnusPiscrew.png)![MagnusPocketAlien.png|300](/img/user/Photos/MagnusPocketAlien.png)
 ★ Name: Magnus
 ★ Name Meaning: The Great One
 ★ Alias: Dragon Mage
@@ -30,7 +30,7 @@
 
 ★ Personality: He strives to learn more and more about magic. He gets a little nervous sometimes but is very passionate. He always tries to help others out whenever he can.
 
-
+![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
 ★ Backstory: Before his birth, Magnus's mother and farther were on an adventure team before settling down in Radicis. A witches curse from their adventuring times caused Magnus to be born a dragon and to go blind by the age of 10. With his father being the leader of Radicis, he always wished to lead after him. One day pirates raided Radicis, killing his mother and kidnapping his sister. A few decades later, his father went off to try and make peace with [[Main Plot/Season 3/Pruina/Pruina\|Pruina]], but on his was was killed by [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]]. Magnus hope he can fill his fathers place.
 
 
@@ -105,4 +105,3 @@ Least Favorite Pet
 - Height: 7'2
 - Notable features: Horns, Wings, and a tail all black. A crescent moon under his eye.
 - Clothing: always in a black shirt with a white jacket over it. Gold necklaces from his mother and glasses
-![MagnusPiscrew.png|300](/img/user/Photos/MagnusPiscrew.png)![MagnusPocketAlien.png|300](/img/user/Photos/MagnusPocketAlien.png)
