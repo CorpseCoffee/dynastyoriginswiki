@@ -3,8 +3,7 @@
 ---
 
 # Bandit Zao
-![BanditZao.png|400](/img/user/Photos/BanditZao.png)
-★ Name: Bandit Zao 
+★ Name: Bandit Zao ![BanditZao.png|400](/img/user/Photos/BanditZao.png)
 ★ Alias: Formally Rex [[Bandaroosh\|Bandaroosh]], Sherrif, Rex, Joy-Full cat
 ★ Current Kingdom: [[Solaris\|Solaris]]
 ★ Kingdom Born In: Zonas
