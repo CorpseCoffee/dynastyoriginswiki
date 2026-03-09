@@ -19,7 +19,7 @@
 ★ Connections (Updated) : 
 Convencionaly shows the mechanisms she makes to use against the [[Main Plot/Season 3/Marinis/Marinis\|Marinis]] to [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]]
 Is an acquaintance of [[D1GIT\|D1GIT]]. 
-Sells netherwarts to [[Charlie\|Charlie]] from time to time
+Sells netherwarts to [[Main Plot/Season 3/Radicis/Characters/Charlie\|Charlie]] from time to time
 Is also an acquaintance of [[Ren\|Ren]]
 ★ Skills: Redstone machines are normally more easy to understand to her, cooks really well, her melee weapon is a crossbow since she is a piglin
 ★ Other Abilities: She is bilingual; she speaks more than two languages, in the over world she gets fire resistance
