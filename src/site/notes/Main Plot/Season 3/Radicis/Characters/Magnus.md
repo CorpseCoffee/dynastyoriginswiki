@@ -3,7 +3,7 @@
 ---
 
 # Magnus
-★ Out of Character: Banana Man
+★ Out of Character: Banana Man![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
 ★ Name: Magnus
 ★ Name Meaning: The Great One
 ★ Alias: Dragon Mage
@@ -16,7 +16,7 @@
 ★ Sexuality: Bisexual
 ★ Open for ships?: Yes
 ★ Occupation: Arch Mage of Radicis
-★ Connections: ![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
+★ Connections: 
 - [[Main Plot/Season 3/Radicis/Characters/Copper\|Copper]]  Supplies all the resources he needs for alchemy and tool making 
 - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] Teaching him how to be a leader.
 - [[Clementine\|Clementine]] Fell in love with them at first sight.
