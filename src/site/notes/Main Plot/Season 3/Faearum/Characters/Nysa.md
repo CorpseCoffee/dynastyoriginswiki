@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/faearum/characters/nysa/"}
 ---
 
+# Nysa
 ★ Name: Nysa
 ★ Alias: N\A
 ★ Current Kingdom: [[Main Plot/Season 3/Faearum/Faearum\|Faearum]]
