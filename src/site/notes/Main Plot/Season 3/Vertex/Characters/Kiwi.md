@@ -17,8 +17,51 @@ Occupation: being a scholar and while simultaneously being the leader
 Hobbys: Breakdancing
 Fears: Heavy Rain, Storms, Thunder, Hail, and really loud sounds
 
+Connections
+[[Caelum\|Caelum]] - situationship
+[[Eclipse\|Eclipse]] - Friend and adviser 
+[[Michael\|Michael]] - Friends/father figure
+[[Juniper\|Juniper]] - Recent friends
+[[Graham\|Graham]] - Has met a few times at noble gatherings and such
+[[Ghost\|Ghost]] - Mutual friends, met when kiwi went to Caelum's tavern
+[[Hyfher\|Hyfher]] - Works for Kiwi as a guard
+[[Velo\|Velo]] - met when Kiwi was on the top of the mountain once
+[[Liut\|Liut]] - chess rivals
+
+did this as a different message to expand it easily
+
 Powers: flying, extra damage while flying and glides slower while crouching.
 Weaknesses: brittle bones, -4 hearts, only helmet and chocolate.
+
+Least Favourite Color
+- White
+
+Least Favourite Food
+- cauliflower 
+
+Least Favourite Animal
+- centipede
+
+Least Favourite Scent
+- rotting
+
+Least Favourite Taste
+- bland
+
+Least Favourite Season
+- Winter
+
+Least Favourite Cookie
+- SHIT COOKIES BRO, I CANT EVEN EAT THOSE
+
+Least Favourite Fruit
+- pumpkin
+
+Least Favourite Cake
+- cauliflower cake
+
+Least Favourite Pet
+- sheep
 
 Personality: not so social you could say but tries his best to socialize but once he gets comfortable with someone, he never leaves them. Sometimes he takes chances with socializing and it often ends up with him getting a new friend. He’s very insecure about most stuff and gets embarrassed if someone brings something he’s insecure about up. He’s a very emotional person but doesn’t like to talk about his emotions since he doesn’t want to seem weak especially in front of his kingdom. 
 
@@ -27,3 +70,5 @@ Backstory: You see Kiwi grew up without a mother due to reasons he never really 
 Height: 2’6
 Notable features: wings on his head, back, hips, and a pair of glasses, 
 Clothing: simple scholar suit with green on the outside and white on the inside
+
+![Pasted image 20260308185623.png|400](/img/user/Pasted%20image%2020260308185623.png)
