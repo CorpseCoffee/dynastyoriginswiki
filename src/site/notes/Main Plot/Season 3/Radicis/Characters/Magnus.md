@@ -29,6 +29,10 @@
 ★ Weaknesses: Cold, Can't sleep if injured
 
 ★ Personality: He strives to learn more and more about magic. He gets a little nervous sometimes but is very passionate. He always tries to help others out whenever he can.
+<figure>
+  ![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
+  <figcaption>Test.</figcaption>
+</figure>
 
 ![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
 ★ Backstory: Before his birth, Magnus's mother and farther were on an adventure team before settling down in Radicis. A witches curse from their adventuring times caused Magnus to be born a dragon and to go blind by the age of 10. With his father being the leader of Radicis, he always wished to lead after him. One day pirates raided Radicis, killing his mother and kidnapping his sister. A few decades later, his father went off to try and make peace with [[Main Plot/Season 3/Pruina/Pruina\|Pruina]], but on his was was killed by [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]]. Magnus hope he can fill his fathers place.
