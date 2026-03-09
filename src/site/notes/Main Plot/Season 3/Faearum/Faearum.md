@@ -17,3 +17,14 @@ About a decade ago, the last remaining biological member of the royal family pas
 Queen/King - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]]
 
 **Current Residents:**
+[[Main Plot/Season 3/Faearum/Characters/Boreas\|Boreas]]
+[[Main Plot/Season 3/Faearum/Characters/Dandelion\|Dandelion]] - Solace
+[[Main Plot/Season 3/Faearum/Characters/Faith\|Faith]] - St4rz
+[[Main Plot/Season 3/Faearum/Characters/Flint (Fae)\|Flint (Fae)]]
+[[Main Plot/Season 3/Faearum/Characters/Lynx\|Lynx]]
+[[Main Plot/Season 3/Faearum/Characters/Mōna\|Mōna]] - Felix
+[[Main Plot/Season 3/Faearum/Characters/Nysa\|Nysa]] - Nyxi
+[[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] - Sky
+[[Main Plot/Season 3/Faearum/Characters/Toby\|Toby]]
+[[Main Plot/Season 3/Faearum/Characters/Willow\|Willow]] - Cas
+[[Main Plot/Season 3/Faearum/Characters/Xavynth\|Xavynth]]
