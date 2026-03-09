@@ -22,7 +22,7 @@
 - was besties with Rainy (one of [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]]'s victims/disguises) before she died
 - mentors [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]] with leadership stuff 
 - [Faith Aeternus](https://discord.com/channels/1353074719250976848/1440068745522577418) is their child 
-- knows [[Tek Zao\|Tek Zao]] from their kids being playmates
+- knows [[Main Plot/Season 3/Pruina/Characters/Tek Zao\|Tek Zao]] from their kids being playmates
 - met [[Main Plot/Deities/Salem\|Salem]] 100.000 years ago in a cave when he was first created
 - haunted by [[Rusty\|Rusty]]
 - [[Main Plot/Season 3/Vertex/Characters/Goshe du Tronz\|Goshe du Tronz]] is their worst opp
