@@ -1,0 +1,29 @@
+---
+{"dg-publish":true,"permalink":"/main-plot/season-3/vertex/characters/kiwi/"}
+---
+
+# Kiwi
+Out of Character: Fishie
+Name: Kiwi 
+Origin: Parrot
+Alias: 
+Kingdom: [[Main Plot/Season 3/Vertex/Vertex\|Vertex]]
+Age: 15
+Birthday: 4/15
+Pronouns: anything
+Sexuality: Pansexual
+Open for ships: Sure
+Occupation: being a scholar and while simultaneously being the leader
+Hobbys: Breakdancing
+Fears: Heavy Rain, Storms, Thunder, Hail, and really loud sounds
+
+Powers: flying, extra damage while flying and glides slower while crouching.
+Weaknesses: brittle bones, -4 hearts, only helmet and chocolate.
+
+Personality: not so social you could say but tries his best to socialize but once he gets comfortable with someone, he never leaves them. Sometimes he takes chances with socializing and it often ends up with him getting a new friend. He’s very insecure about most stuff and gets embarrassed if someone brings something he’s insecure about up. He’s a very emotional person but doesn’t like to talk about his emotions since he doesn’t want to seem weak especially in front of his kingdom. 
+
+Backstory: You see Kiwi grew up without a mother due to reasons he never really found out and grew up with his father until his father got Mercury poisoning by his own food taster when he was 7. After that he grew up mostly secluded from the world with the only person to visit him being his grandma but at the age of 13 he decided to start studying law and national diplomacy to prepare for his 15th birthday which is the day he inherits the throne. He started exploring the outside when he turned 14 but he’s still pretty new to talking and socializing. 
+
+Height: 2’6
+Notable features: wings on his head, back, hips, and a pair of glasses, 
+Clothing: simple scholar suit with green on the outside and white on the inside
