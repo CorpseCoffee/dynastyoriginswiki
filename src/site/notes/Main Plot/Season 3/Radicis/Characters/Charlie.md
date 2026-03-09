@@ -13,7 +13,7 @@
 ★ Sexuality: Gay
 ★ Open for ships: Yes
 ★ Occupation: Healer Wizard, heals people by the expense of mobs
-★ Connections: [Celery Cromand Roswell Flyir]([[Main Plot/Season 3/Radicis/Characters/Celery\|Celery]]) as they sell me Netherwart to make my potions!
+★ Connections: [Celery Cromand Roswell Flyir](Celery) as they sell me Netherwart to make my potions!
 
 ★ Skills: Master healing wizard, good at building
 ★ Other Abilities:

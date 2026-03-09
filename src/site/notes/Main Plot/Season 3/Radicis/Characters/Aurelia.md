@@ -15,7 +15,7 @@
 ★ Occupation: Apprentice 
 
 **★ Connections:**
-[Arch Mage Magnus]([Magnus]) — Aurelia was discovered wandering near the Radicis outskirts carrying unstable enchanted debris inside her body. Magnus permitted her to remain in Radicis. She views him as her protector, though she does not fully understand why.
+[Arch Mage Magnus](Magnus) — Aurelia was discovered wandering near the Radicis outskirts carrying unstable enchanted debris inside her body. Magnus permitted her to remain in Radicis. She views him as her protector, though she does not fully understand why.
 
 **★ Skills:**
 - Exceptional organization and memory for physical objects
