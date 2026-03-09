@@ -19,7 +19,6 @@
 Mirage killed [[Tek\|Tek]]'s best friend [[Micah\|Micah]] and taunts him with it.
 Connected to [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] through [[Rainy\|Rainy]], their best friend who she killed and disguises as.
 [[Lyfrassir\|Lyfrassir]] works at their library and is unaware about their true identity.
--# LMK if you want to connect :3
 
 ★ Skills: Flight, exceptional hunting prowess, shapeshifting.
 ★ Other Abilities: Can use its tail as an extra appendage along with another set of arms she has.
@@ -43,7 +42,7 @@ Mirage and this Perfumer grew incredibly close with each other, beginning to dat
 Mirage still mostly acted human due to their upbringing within human culture, but still didn’t fully grasp what taking lives could do. When the Perfumer found out they were the cause of the thirty deaths within their village, he tried to run away.
 
 Mirage hit him atop the head with a rock, keeping him trapped in a cage below a library until he took his own life with a small dagger he had fashioned himself, refusing to die of starvation.
--# by the way, Hyacinths old village was in fact old Pruina! ^^
+by the way, Hyacinths old village was in fact old Pruina! ^^
 
 Mirage believed that Hyacinth dying was selfish- leaving them alone and hurting. They vowed to never let anyone close leave them again, no matter the cost.
 
@@ -51,7 +50,7 @@ Mirage believed that Hyacinth dying was selfish- leaving them alone and hurting.
 [Youtube Playlist](https://youtube.com/playlist?list=PLuUR0sQ5i8W3_BX0xynaKwu-5yMvBhTxy&si=3iUfFljpWEfn9fp5)
 
 Here’s some definitely fun facts and NOT all angst facts about Hyacinth and Mirage!
--# definitely some tws for like ||starvation, suicide, abuse, death|| so be careful if you’re sensitive. All facts mentioning these topics vividly will be spoilered.
+definitely some tws for like starvation, suicide, abuse, death so be careful if you’re sensitive. All facts mentioning these topics vividly will be spoilered.
 
 - Hyacinth took Mirage in after he woke up from his hibernation and taught him perfume making. It’s one of Mirage’s hobbies now!
 
@@ -61,15 +60,13 @@ Here’s some definitely fun facts and NOT all angst facts about Hyacinth and Mi
 
 - Mirage was afraid of Hyacinth leaving her like all of her previous family and partners, so she chained him to his cage so he couldn’t try escaping.
 
-- Hyacinth ||created a small dagger out of stray materials he collected from the cage bars and slit his throat to avoid dying from starvation.||
+- Hyacinth created a small dagger out of stray materials he collected from the cage bars and slit his throat to avoid dying from starvation.
 
 - Mirage cannot look in mirrors anymore without only seeing Hyacinth looking back at them.
 
-- ||Mirage watched Hyacinths body rot for years, not understanding that he died and thought he was just hibernating from his injury. They don’t understand death for non-braincrawlers fully.||
+- Mirage watched Hyacinths body rot for years, not understanding that he died and thought he was just hibernating from his injury. They don’t understand death for non-braincrawlers fully.
 
 - Mirage and Hyacinth were canonically engaged before he was imprisoned by her.
-
-Added stuff: 
 
 - Hyacinth and other people Mirage have killed are latched onto him like parasites. (Ironic) and can be seen crawling all over his back by anyone who can see ghosts! Hyacinth is the most visible due to his extreme hatred.
 

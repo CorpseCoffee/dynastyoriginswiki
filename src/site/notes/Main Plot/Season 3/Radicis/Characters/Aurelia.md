@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/aurelia/"}
 ---
 
+# Aurelia
 ★ Name: Aurelia  
 ★ Alias: Reliquary, The Hollow Chest (rumor only)
 ★ Current Kingdom: [[Main Plot/Season 3/Radicis/Radicis\|Radicis]]

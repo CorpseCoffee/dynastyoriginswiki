@@ -114,4 +114,4 @@ Eclipse and the others were kind enough to Cooper, he supposed. At least they tr
 - Notable features: What appears to be heterochromia but is actually just a cataract in his right eye, alongside rectangular pupils. His left horn is broken off.
 Also, obviously, goat legs.
 - Clothing: A dark, mourning tunic with red inlays, as he is one of Eclipse’s followers. A tattered burial shroud is loosely draped around his shoulders, a rose often being attached to it. It serves no practical use.
-![Pasted image 20260309111022.png|400](/img/user/Pasted%20image%2020260309111022.png)![Pasted image 20260309111111.png|360](/img/user/Pasted%20image%2020260309111111.png)
+![Cooper.png|400](/img/user/Photos/Cooper.png)![CooperAndDallas.png|360](/img/user/Photos/CooperAndDallas.png)
