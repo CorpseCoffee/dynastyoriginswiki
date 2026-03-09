@@ -32,3 +32,4 @@
 - Notable features: His long purple coat and purple hat (He adores his hat)
 - Clothing: His purple cloak and hat
 ![GoldBandarooshSkin.png|300](/img/user/Photos/GoldBandarooshSkin.png)
+[Spotify PLaylist](https://open.spotify.com/playlist/1UYWnNFT1082B7QITTzqF3?si=HD8bY7XcTL-shMvcntJu7g&pi=BrORQ6EGQpavI)
