@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/copper/"}
 ---
 
+# Copper
 ★ Out of Character: Ash
 ★ Name: Copper 
 ★ Current Kingdom: [[Main Plot/Season 3/Radicis/Radicis\|Radicis]]

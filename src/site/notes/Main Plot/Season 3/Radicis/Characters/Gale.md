@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/gale/"}
 ---
 
+# Gale
 ★ Out of Character: K James
 ★ Name: Gale
 ★ Alias: Doc toxin

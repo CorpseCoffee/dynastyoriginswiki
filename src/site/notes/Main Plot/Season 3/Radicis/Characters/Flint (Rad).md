@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/flint-rad/"}
 ---
 
+# Flint (Radicis)
 ★ Out of Character: Nugget / Office
 ★ Name: Flint
 ★ Alias: none unless you would count a random stream of letters and numbers

@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/magnus/"}
 ---
 
+# Magnus
 ★ Out of Character: Banana Man
 ★ Name: Magnus
 ★ Name Meaning: The Great One

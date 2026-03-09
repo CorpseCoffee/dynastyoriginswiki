@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/celery/"}
 ---
 
+# Celery Cromand Roswell Flyir
 ★ Name: Celery Cromand Roswell Flyir
 ★ Alias: C.C
 ★ Current Kingdom: [[Main Plot/Season 3/Radicis/Radicis\|Radicis]]
