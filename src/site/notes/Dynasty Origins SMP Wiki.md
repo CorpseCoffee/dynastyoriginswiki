@@ -41,4 +41,4 @@ Currently a W.I.P.
 Feel free to submit information about the old kingdoms and I'll update it here
 
 ### Credits
-Solace, Cas, and Sky - For being insane and hosting Dynasty Origins SMP and being the #1 note takers, this wouldn't be possible without their collective insanity
+Solace, Cas, and Sky - For being insane and hosting Dynasty Origins SMP and being the number 1 note takers, this wouldn't be possible without their collective insanity
