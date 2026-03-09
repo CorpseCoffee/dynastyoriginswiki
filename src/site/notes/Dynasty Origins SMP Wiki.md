@@ -5,7 +5,7 @@
 # Dynasty Origins SMP Wiki
 *By CorpseCoffee using Obsidian and the My Digital Garden plugin*
 
-If you want any information added, removed, or changed feel free to DM me or @ me, this "Wikis" information is entirely up to the public I simply act as the host. I may change some information so it's more easily readable, if I accidentally change something important then feel free to call me names.
+If you want any information added, removed, or changed feel free to DM me or @ me, this "Wiki"s information is entirely up to the public I simply act as the host. I may change some information so it's more easily readable, if I accidentally change something important then feel free to call me names.
 ![DynastyLogo.png](/img/user/Photos/DynastyLogo.png)
 ### Kingdoms - Season 3
 [[Main Plot/Season 3/Radicis/Radicis\|Radicis]] - Kingdom of Magic lead by [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]] (Banana Man)
