@@ -16,6 +16,7 @@
 ★ Sexuality: Bisexual
 ★ Open for ships?: Yes
 ★ Occupation: Arch Mage of Radicis
+![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)
 ★ Connections: 
 - [[Main Plot/Season 3/Radicis/Characters/Copper\|Copper]]  Supplies all the resources he needs for alchemy and tool making 
 - [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] Teaching him how to be a leader.
@@ -106,4 +107,3 @@ Least Favorite Pet
 - Notable features: Horns, Wings, and a tail all black. A crescent moon under his eye.
 - Clothing: always in a black shirt with a white jacket over it. Gold necklaces from his mother and glasses
 ![MagnusPiscrew.png|300](/img/user/Photos/MagnusPiscrew.png)![MagnusPocketAlien.png|300](/img/user/Photos/MagnusPocketAlien.png)
-![MagnusTimeline.png](/img/user/Photos/MagnusTimeline.png)

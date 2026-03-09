@@ -63,3 +63,5 @@ Feel free to submit information about the ARG, I'll update it here
 
 ### Credits
 Solace, Cas, and Sky - For being insane and hosting Dynasty Origins SMP and being the number 1 note takers, this wouldn't be possible without their collective insanity
+
+![DynastyLogo.png](/img/user/Photos/DynastyLogo.png)
