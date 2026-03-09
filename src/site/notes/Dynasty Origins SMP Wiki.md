@@ -3,7 +3,7 @@
 ---
 
 # Dynasty Origins SMP Wiki
-*Made by CorpseCoffee using Obsidian and the My Digital Garden plugin*
+*By CorpseCoffee using Obsidian and the My Digital Garden plugin*
 
 If you want any information added, removed, or changed feel free to DM me or @ me, this "Wikis" information is entirely up to the public I simply act as the host. I may change some information so it's more easily readable, if I accidentally change something important then feel free to call me names.
 ### Kingdoms - Season 3
