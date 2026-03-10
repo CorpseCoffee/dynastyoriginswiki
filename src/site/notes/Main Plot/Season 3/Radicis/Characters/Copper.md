@@ -15,7 +15,7 @@
 ★ Open for ships: Yes
 ★ Occupation: Traveler and miner. Has worked different hard labor jobs over his travels and at his village.
 
-★ Connections: [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]] and [[Main Plot/Season 3/Radicis/Characters/Gale\|Gale]] (supplies both of them items and fetches things) 
+★ Connections: [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]]
 
 ★ Skills: Forest survival
 ★ Other Abilities: General strength and endurance.

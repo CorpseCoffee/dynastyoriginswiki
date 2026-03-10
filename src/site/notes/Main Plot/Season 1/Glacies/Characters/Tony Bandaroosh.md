@@ -5,7 +5,7 @@
 # Tony Bandaroosh
 ★ Name: Tony Bandaroosh
 ★ Alias: The butcher
-★ Current Kingdom: [[Glacies\|Glacies]]
+★ Current Kingdom: [[Main Plot/Season 1/Glacies/Glacies\|Glacies]]
 ★ Kingdom Born In: a kingdom outside of Glacies
 ★ Origin: a Frost hybrid
 ★ Age: he was around 21 when he first started his restaurant and making deals with [[Main Plot/Deities/Posa\|Posa]], He dies around the age of 47

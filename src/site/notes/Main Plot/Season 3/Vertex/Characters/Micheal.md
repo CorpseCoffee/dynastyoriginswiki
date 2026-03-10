@@ -15,7 +15,7 @@
 ★ Open for ships: Yes
 ★ Occupation: archeologist in vertex
 
-★ Connections: Father figure to [[Main Plot/Season 3/Vertex/Characters/Kiwi\|Kiwi]], [[Terra\|Terra]] 
+★ Connections: Father figure to [[Main Plot/Season 3/Vertex/Characters/Kiwi Marquez\|Kiwi Marquez]], [[Terra\|Terra]] 
 
 ★ Skills: very good at walking for some reason
 ★ Other Abilities: gains strength for 10 seconds after being hit

@@ -21,6 +21,6 @@ Elders (NPCs) - [[Main Plot/Season 3/Radicis/Elders/Gaia Land\|Gaia Land]], [[Ma
 [[Main Plot/Season 3/Radicis/Characters/Celery\|Celery]] - CheeseChip
 [[Main Plot/Season 3/Radicis/Characters/Charlie\|Charlie]] - Charlie
 [[Main Plot/Season 3/Radicis/Characters/Copper\|Copper]] - Ash
+[[Main Plot/Season 3/Radicis/Characters/Evander\|Evander]] - Enchanted
 [[Main Plot/Season 3/Radicis/Characters/Flint (Rad)\|Flint (Rad)]] - Nugget / Office
-[[Main Plot/Season 3/Radicis/Characters/Gale\|Gale]] - K James
 [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]] - BananaMan

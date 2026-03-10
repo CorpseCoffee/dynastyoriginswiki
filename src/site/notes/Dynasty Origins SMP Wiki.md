@@ -40,12 +40,12 @@ Feel free to submit information about the ARG, I'll update it here
 
 ### The Old Kingdoms - Past Seasons
 **Season 1**
-[[Aequor\|Aequor]] - Ocean Kingdom
-[[Fungalis\|Fungalis]] - Outcast Island (Non Canon)
-[[Glacies\|Glacies]] - Snow Kingdom
-[[Ignovimus\|Ignovimus]] - Nether Kingdom
-[[Profundus\|Profundus]] - Underground Kingdom
-[[Pulvis\|Pulvis]] - Sand Kingdom
+[[Main Plot/Season 1/Aequor/Aequor\|Aequor]] - Ocean Kingdom
+[[Main Plot/Season 1/Glacies/Glacies\|Glacies]] - Outcast Island (Non Canon)
+[[Main Plot/Season 1/Glacies/Glacies\|Glacies]] - Snow Kingdom
+[[Main Plot/Season 1/Ignovimus/Ignovimus\|Ignovimus]] - Nether Kingdom
+[[Main Plot/Season 1/Profundus/Profundus\|Profundus]] - Underground Kingdom
+[[Main Plot/Season 1/Pulvis/Pulvis\|Pulvis]] - Sand Kingdom
 [[Syliva\|Syliva]] - Plains Kingdom
 
 **Season 2**

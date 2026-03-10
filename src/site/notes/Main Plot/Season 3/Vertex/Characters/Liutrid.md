@@ -21,7 +21,7 @@
 
 
 ➤ Occupation: Agriculture, Livestock (Farming)
-➤ Connections: [[Main Plot/Season 3/Vertex/Characters/Kiwi\|Kiwi]] (Friendly rivalry)
+➤ Connections: [[Main Plot/Season 3/Vertex/Characters/Kiwi Marquez\|Kiwi Marquez]] (Friendly rivalry)
 
 ➤ Skills: Farming, building
 ➤ Other Abilities: Oddly good at chess.

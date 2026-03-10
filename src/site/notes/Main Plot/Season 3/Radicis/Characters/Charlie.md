@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/season-3/radicis/characters/charlie/"}
 ---
 
+# Charlie
 ★ Name: Charlie
 ★ Alias: Charlie
 ★ Current Kingdom: [[Main Plot/Season 3/Radicis/Radicis\|Radicis]]
