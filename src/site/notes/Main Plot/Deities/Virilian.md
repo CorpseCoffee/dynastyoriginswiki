@@ -3,7 +3,7 @@
 ---
 
 ⟢**Deity Sheet**⟣
-⊱Name: Virilian, First Queen of [[Viridis\|Viridis]]
+⊱Name: Virilian, First Queen of [[Main Plot/Season 2/Viridis/Viridis\|Viridis]]
 ⊱Symbols: 
  - Quetzal Birds & a setting sun (Viridis banner)
 ⊱God of: Festivals & Birds

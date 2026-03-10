@@ -49,10 +49,10 @@ Feel free to submit information about the ARG, I'll update it here
 [[Main Plot/Season 1/Sylvia/Sylvia\|Sylvia]] - Plains Kingdom
 
 **Season 2**
-[[Caecus\|Caecus]] - Deepdark Kingdom
-[[Viridis\|Viridis]] - Jungle Kingdom
-[[Florere\|Florere]] - Cherry Kingdom
-[[Solaris\|Solaris]] - Mesa Kingdom
+[[Main Plot/Season 2/Caecus/Caecus\|Caecus]] - Deepdark Kingdom
+[[Main Plot/Season 2/Viridis/Viridis\|Viridis]] - Jungle Kingdom
+[[Main Plot/Season 2/Florere/Florere\|Florere]] - Cherry Kingdom
+[[Main Plot/Season 2/Solaris/Solaris\|Solaris]] - Mesa Kingdom
 [[Arquus\|Arquus]] - Sea Kingdom
 
 **Season 3**

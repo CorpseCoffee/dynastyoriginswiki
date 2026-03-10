@@ -5,7 +5,7 @@
 # Bandit Zao
 ★ Name: Bandit Zao ![BanditZao.png|400](/img/user/Photos/BanditZao.png)
 ★ Alias: Formally Rex [[Bandaroosh\|Bandaroosh]], Sherrif, Rex, Joy-Full cat
-★ Current Kingdom: [[Solaris\|Solaris]]
+★ Current Kingdom: [[Main Plot/Season 2/Solaris/Solaris\|Solaris]]
 ★ Kingdom Born In: Zonas
 ★ Origin: Feline hybrid
 ★ Age: 19, Dies around the age of 40

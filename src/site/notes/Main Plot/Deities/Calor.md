@@ -13,7 +13,7 @@
 [[Main Plot/Deities/Tabeth\|Tabeth]] - close friend
 
 ⊱Character Connections: 
- Known by basically the entire kingdom of [[Solaris\|Solaris]]
+ Known by basically the entire kingdom of [[Main Plot/Season 2/Solaris/Solaris\|Solaris]]
 
 ⊱Description:
  A tall, humanoid, masculine figure with red skin and hair made of fire, which ends in a long braid. His clothing is mainly loose fabrics. Around his neck and ankles spark rings of fire, parts of his clothing glow with the heat of the sun. Instead of feet Calor has hooves. His eyes are bright white, glowing, and pupilless. Also very muscular. Can turn into fire and has an alternate animalistic form but almost never uses those.
