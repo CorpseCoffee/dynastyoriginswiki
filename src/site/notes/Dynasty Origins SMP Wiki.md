@@ -12,7 +12,7 @@ If you want any information added, removed, or changed feel free to DM me or @ m
 [[Main Plot/Season 3/Faearum/Faearum\|Faearum]] - Kingdom of Fairies lead by [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] (Sky)
 [[Main Plot/Season 3/Pruina/Pruina\|Pruina]] - Kingdom of Vikings lead by [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]] (Painter)
 [[Main Plot/Season 3/Marinis/Marinis\|Marinis]] - Kingdom of Pirates lead by [[Main Plot/Season 3/Marinis/NPCs/Opal\|Opal]] (NPC Kingdom)
-[[Main Plot/Season 3/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Main Plot/Season 3/Vertex/Characters/Kiwi\|Kiwi]] (Fishie)
+[[Main Plot/Season 3/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Main Plot/Season 3/Vertex/Characters/Kiwi Marquez\|Kiwi Marquez]] (Fishie)
 
 ### Gods - All Seasons
 [Discord Forum](https://discord.com/channels/1353074719250976848/1393470762903404644)
@@ -60,7 +60,7 @@ Feel free to submit information about the ARG, I'll update it here
 [[Main Plot/Season 3/Marinis/Marinis\|Marinis]] - Kingdom of Pirates lead by [[Main Plot/Season 3/Marinis/NPCs/Opal\|Opal]] (NPC Kingdom)
 [[Main Plot/Season 3/Pruina/Pruina\|Pruina]] - Kingdom of Vikings lead by [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]] (Painter)
 [[Main Plot/Season 3/Radicis/Radicis\|Radicis]] - Kingdom of Magic lead by [[Main Plot/Season 3/Radicis/Characters/Magnus\|Magnus]] (Banana Man)
-[[Main Plot/Season 3/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Main Plot/Season 3/Vertex/Characters/Kiwi\|Kiwi]] (Fishie)
+[[Main Plot/Season 3/Vertex/Vertex\|Vertex]] - Kingdom of lead by [[Main Plot/Season 3/Vertex/Characters/Kiwi Marquez\|Kiwi Marquez]] (Fishie)
 
 ### Credits
 Solace, Cas, and Sky - For being insane and hosting Dynasty Origins SMP and being the number 1 note takers, this wouldn't be possible without their collective insanity
