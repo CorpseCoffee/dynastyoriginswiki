@@ -18,7 +18,7 @@
 ★ Occupation: Arch Mage of Radicis
 ★ Connections: 
 - [[Main Plot/Season 3/Radicis/Characters/Copper\|Copper]]  Supplies all the resources he needs for alchemy and tool making 
-- [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] Teaching him how to be a leader.
+- [[Main Plot/Season 3/Faearum/Characters/Owlet Aeternus\|Owlet Aeternus]] Teaching him how to be a leader.
 - [[Clementine\|Clementine]] Fell in love with them at first sight.
 - [[Main Plot/Season 3/Faearum/Characters/Willow\|Willow]] On one of their visits to [[Feaerum\|Feaerum]] Magnus noticed their mana and is teaching them anytime they come to Radicis
 - [[Bunx\|Bunx]]  when they didn't have a home Magnus offered them the room in his attic and allowed use of his garden.

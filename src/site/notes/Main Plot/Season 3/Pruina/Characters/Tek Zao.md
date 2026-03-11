@@ -16,7 +16,7 @@
 ★ Occupation: Archeologist, Restuarnt owner
 
 ★ Connections: [[Main Plot/Season 3/Pruina/Characters/Mirage\|Mirage]] (Hates mirage for killing [[Micah\|Micah]]), [[Rosie\|Rosie]] (His daughter) [[Main Plot/Season 3/Pruina/Characters/Gold Bandaroosh\|Gold Bandaroosh]] (Great great great uncle/brother figure) Micah (Crush/Best friend) [[Main Plot/Season 3/Faearum/Characters/Dandelion\|Dandelion]] (Cousin)
-[[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] (Close friend)
+[[Main Plot/Season 3/Faearum/Characters/Owlet Aeternus\|Owlet Aeternus]] (Close friend)
 
 ★ Skills: Really good at fighting 
 ★ Other Abilities: Mechanical arm

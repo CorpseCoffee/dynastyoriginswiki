@@ -20,7 +20,7 @@ Lowkey an experimentalist on the side
 
 [[Vasily\|Vasily]] - Their Father. Willow really cares about their father but he wasn’t around much and is kinda a dead beat…
 
-[[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] - Mushroom buddies! Willow houses and works on some of their mushrooms on the side of their main work.
+[[Main Plot/Season 3/Faearum/Characters/Owlet Aeternus\|Owlet Aeternus]] - Mushroom buddies! Willow houses and works on some of their mushrooms on the side of their main work.
 
 [[Main Plot/Season 3/Faearum/Characters/Dandelion\|Dandelion]] - They have a crush on Willow, Willow has no comments about it atm
 

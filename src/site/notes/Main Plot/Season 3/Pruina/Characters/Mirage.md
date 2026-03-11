@@ -17,7 +17,7 @@
 
 ★ Connections: 
 Mirage killed [[Tek\|Tek]]'s best friend [[Micah\|Micah]] and taunts him with it.
-Connected to [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] through [[Rainy\|Rainy]], their best friend who she killed and disguises as.
+Connected to [[Main Plot/Season 3/Faearum/Characters/Owlet Aeternus\|Owlet Aeternus]] through [[Rainy\|Rainy]], their best friend who she killed and disguises as.
 [[Lyfrassir\|Lyfrassir]] works at their library and is unaware about their true identity.
 
 ★ Skills: Flight, exceptional hunting prowess, shapeshifting.
