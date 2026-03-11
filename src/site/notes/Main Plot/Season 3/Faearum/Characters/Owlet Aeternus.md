@@ -3,7 +3,8 @@
 ---
 
 # Owlet Aeternus
-★ Name: Owlet Aeternus![Owlet.png|300](/img/user/Photos/Owlet.png)![OwletBig.png|350](/img/user/Photos/OwletBig.png)
+★ Out of Character: Sky![Owlet.png|300](/img/user/Photos/Owlet.png)![OwletBig.png|350](/img/user/Photos/OwletBig.png)
+★ Name: Owlet Aeternus
 ★ Alias: King/Queen Owlet Aeternus of Faearum
 ★ Current Kingdom: [[Main Plot/Season 3/Faearum/Faearum\|Faearum]]
 ★ Kingdom Born In: n/a
