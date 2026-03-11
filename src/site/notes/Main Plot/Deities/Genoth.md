@@ -11,4 +11,4 @@
 ⊱Holidays: His followers used to sacrifice a goat on November 22 due to it being the date of his creation
 ⊱Backstory: Genoth was made by pure hatred for the world and everything on he was made to create the feeling of hate and the hate building up into war but soon after his creation his followers started leaving him leading to him being forgotten and lost to time
 
-![Genoth.png|400](/img/user/Photos/Genoth.png)
+![Genoth.png|400](/img/user/Photos/Genoth.png)![GenothTwinkForm.png|403](/img/user/Photos/GenothTwinkForm.png)

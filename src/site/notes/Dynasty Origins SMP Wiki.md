@@ -53,7 +53,7 @@ Feel free to submit information about the ARG, I'll update it here
 [[Main Plot/Season 2/Viridis/Viridis\|Viridis]] - Jungle Kingdom
 [[Main Plot/Season 2/Florere/Florere\|Florere]] - Cherry Kingdom
 [[Main Plot/Season 2/Solaris/Solaris\|Solaris]] - Mesa Kingdom
-[[Main Plot/Season 2/Arquur/Arquus\|Arquus]] - Sea Kingdom
+[[Main Plot/Season 2/Arquus/Arquus\|Arquus]] - Sea Kingdom
 
 **Season 3**
 [[Main Plot/Season 3/Faearum/Faearum\|Faearum]] - Kingdom of Fairies lead by [[Main Plot/Season 3/Faearum/Characters/Owlet\|Owlet]] (Sky)
