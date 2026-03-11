@@ -3,7 +3,7 @@
 ---
 
 # Vertex
-Vertex was founded by 4 primary families who originated from [[Faerum\|Faerum]], they had separate beliefs amongst each other, but all had one Primary belief, the gods provided them with their magic, not the land around them, so they left Faerum in search of a new beginning, they settled on a high peak, Determining that the higher they were, the closer to the gods they could be, that the gods would bless them with more magic, more power, and safety, unaware of the cavern that sat below the peak, until it cracked, taking down homes into the opening, pulling them deep into the dark, skulk filled caverns, so Vertex adapted, Building around the crack that had shown, or, into the mountain Believing the cavern to be a punishment by an angered god, they steered clear of entering it, they placed a family in charge of their new kingdom ,a family of parrots, those who they felt would lead best, the family was revered as Vertex’s greatest, mainly due to wealth and status, but also from their efforts in sealing the hole that had formed, once more sealing in the deep dark below, along with those it had taken.
+Vertex was founded by 4 primary families who originated from [[Main Plot/Season 3/Faearum/Faearum\|Faearum]], they had separate beliefs amongst each other, but all had one Primary belief, the gods provided them with their magic, not the land around them, so they left Faearum in search of a new beginning, they settled on a high peak, Determining that the higher they were, the closer to the gods they could be, that the gods would bless them with more magic, more power, and safety, unaware of the cavern that sat below the peak, until it cracked, taking down homes into the opening, pulling them deep into the dark, skulk filled caverns, so Vertex adapted, Building around the crack that had shown, or, into the mountain Believing the cavern to be a punishment by an angered god, they steered clear of entering it, they placed a family in charge of their new kingdom ,a family of parrots, those who they felt would lead best, the family was revered as Vertex’s greatest, mainly due to wealth and status, but also from their efforts in sealing the hole that had formed, once more sealing in the deep dark below, along with those it had taken.
 
 The Kingdom continued to grow Hundreds of people coming there in search of sanctuary, or religious freedom, They became a safe heaven for these people, allowing vertex to grow more diverse, and for it to grow larger, more homes, more people, and after awhile, Churches dedicated to the practices of many gods, One church could provide a place of worship for any religion, The magic aspect has died down a fair bit, but is still deeply rooted in vertex, although no longer common practice, magic users go to Vertex in search of a place to pray to the gods to get stronger.
 
@@ -12,7 +12,7 @@ The Kingdom continued to grow Hundreds of people coming there in search of sanct
 
 THE ORIGINAL FOUR FAMILIES
 
-The original four families were Goats, Parrots, Felines and Sheep, Each family worshipped a different deity and wanted freedom from Faerum’s beliefs.
+The original four families were Goats, Parrots, Felines and Sheep, Each family worshipped a different deity and wanted freedom from Faearum’s beliefs.
 
 The original worshipped by the four families were
 
