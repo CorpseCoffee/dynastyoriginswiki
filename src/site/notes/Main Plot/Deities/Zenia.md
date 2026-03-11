@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/deities/zenia/"}
 ---
 
-⟢**Deity Sheet**⟣![Pasted image 20260311022643.png|400](/img/user/Pasted%20image%2020260311022643.png)
+⟢**Deity Sheet**⟣![Zenia.png|400](/img/user/Photos/Zenia.png)
 ⊱Name: Zenia
 ⊱Symbols: A Partridge carrying a bundle of berries and hay in its beak 
 ⊱God of: Agriculture and Fertility

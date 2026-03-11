@@ -24,4 +24,4 @@ Once every year, on the brightest and longest day, all crops are harvested and o
 
 ⊱Extra Notes: The reason he's forgotten is because he's lazy and unreliable, sometimes forgetting to raise the sun on time (Hence why we have winter) and only blessings crops from time to time. This lead to most people loosing faith in him and slowly forgetting him.
 
-![Pasted image 20260311023641.png](/img/user/Pasted%20image%2020260311023641.png)
+![Beathan.png](/img/user/Photos/Beathan.png)

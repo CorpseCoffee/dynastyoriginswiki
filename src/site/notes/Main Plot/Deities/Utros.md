@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/deities/utros/"}
 ---
 
-⟢**Deity Sheet**⟣![Pasted image 20260311023251.png|400](/img/user/Pasted%20image%2020260311023251.png)
+⟢**Deity Sheet**⟣![Ultros.png|400](/img/user/Photos/Ultros.png)
 ⊱Name:Utros
 ⊱Symbols: Peacock feather
  - When thinking of this deity, What is an object(s) that should first come to mind? Vase
@@ -44,6 +44,6 @@ Funny but canon info:
 Adding onto this so it’s a bit more updated: Utros’s body type changes constantly almost at the same time as the optic illusions on his body
 More Utros facts!: Poisoned a bartender that is at [[Main Plot/Season 2/Florere/Florere\|Florere]] as an attempt to slowly rid the world of Alcohol
 
-Utros can also take the form of a Dunkleosteus that the armour and scales will resemble the patterns on a peacocks tail feathers while also resembling cracks on a vase![Pasted image 20260311023206.png|200](/img/user/Pasted%20image%2020260311023206.png)
+Utros can also take the form of a Dunkleosteus that the armour and scales will resemble the patterns on a peacocks tail feathers while also resembling cracks on a vase![Dunkleosaurus.png|200](/img/user/Photos/Dunkleosaurus.png)
 
-Old Design![Pasted image 20260311022954.png|400](/img/user/Pasted%20image%2020260311022954.png)
+Old Design![UltrosOldDesign.png|400](/img/user/Photos/UltrosOldDesign.png)

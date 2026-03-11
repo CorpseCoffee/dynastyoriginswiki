@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/deities/faerus/"}
 ---
 
-⟢**Deity Sheet**⟣![Pasted image 20260311022250.png|300](/img/user/Pasted%20image%2020260311022250.png)
+⟢**Deity Sheet**⟣![Faerus.png|300](/img/user/Photos/Faerus.png)
 ⊱Name: Faerus
 ⊱Symbols: The shape of the end of her tail.
  - When thinking of this deity, What is an object(s) that should first come to mind?

@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/deities/clank/"}
 ---
 
-⟢**Deity Sheet**⟣![Pasted image 20260311022441.png|300](/img/user/Pasted%20image%2020260311022441.png)
+⟢**Deity Sheet**⟣![Clank.png|300](/img/user/Photos/Clank.png)
 ⊱Name: Clank
 ⊱Symbols: 
  A hammer hitting an anvil.

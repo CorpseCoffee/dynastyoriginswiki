@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/main-plot/deities/wrenn/"}
 ---
 
-⟢**God Sheet**⟣![Pasted image 20260311022827.png|300](/img/user/Pasted%20image%2020260311022827.png)
+⟢**God Sheet**⟣![Wrenn.png|300](/img/user/Photos/Wrenn.png)
 ⊱Name: Wrenn
 ⊱Symbols: Eyes, Clear skies, Owls.
 ⊱God of: Sight and observation
