@@ -86,4 +86,4 @@ Fun facts about Olwet's whole thing of taking over creatures' bodies :333
 - Owlet has a pet black wolf named Tulip. Tulip has a scar over her eye and chest that is almost identical to Owlet's (which is why Owlet connected to her).
 - Owlet's favorite color is orange and her favorite flowers are orange tulips
 - If you were to turn the mushrooms into a stew it would actually have a similar color to the in-game item
-![OwletWolf.png|200](/img/user/Photos/OwletWolf.png)![OwletAndTulip.png|200](/img/user/Photos/OwletAndTulip.png)
+All credits for the photos go to Sky!![OwletWolf.png|200](/img/user/Photos/OwletWolf.png)![OwletAndTulip.png|200](/img/user/Photos/OwletAndTulip.png)
