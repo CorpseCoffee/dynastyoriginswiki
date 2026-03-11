@@ -85,4 +85,4 @@ Fun facts about Olwet's whole thing of taking over creatures' bodies :333
 - Owlet's favorite color is orange and her favorite flowers are orange tulips
 - If you were to turn the mushrooms into a stew it would actually have a similar color to the in-game item
 ![OwletWolf.png|200](/img/user/Photos/OwletWolf.png)![OwletAndTulip.png|200](/img/user/Photos/OwletAndTulip.png)
-[Youtube Playlist](https://music.youtube.com/playlist?list=PLHGLjBl2j39A6p085twpQrfl9DkjUye1T&si=m8l_TTYeLM0yQU-r i think i finished the owlet playlist..... idk if i should lore ping i'm scared <:ummmm:1368934425303318578>)
+[Youtube Playlist](https://music.youtube.com/playlist?list=PLHGLjBl2j39A6p085twpQrfl9DkjUye1T&si=m8l_TTYeLM0yQU-r)
