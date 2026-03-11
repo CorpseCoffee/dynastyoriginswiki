@@ -29,6 +29,7 @@ The original worshipped by the four families were
 [[Main Plot/Season 3/Vertex/Characters/Kiwi Marquez\|Kiwi Marquez]] - Fishie
 
 **Residents**
+[[Main Plot/Season 3/Vertex/Characters/Angelus\|Angelus]] - Angelus
 [[Main Plot/Season 3/Vertex/Characters/Goshe du Tronz\|Goshe du Tronz]] - Duck
 [[Main Plot/Season 3/Vertex/Characters/Micheal\|Micheal]] - Dia
 [[Main Plot/Season 3/Vertex/Characters/Orion\|Orion]] - Vi
