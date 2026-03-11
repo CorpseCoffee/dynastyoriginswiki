@@ -3,7 +3,7 @@
 ---
 
 # Kiwi Marquez
-Out of Character: Fishie
+Out of Character: Fishie![Kiwi.png|400](/img/user/Photos/Kiwi.png)
 Name: Kiwi Marquez
 Origin: Parrot
 Alias: Vertex King 
@@ -71,5 +71,3 @@ Backstory: You see Kiwi grew up without a mother due to reasons he never really 
 Height: 2’6
 Notable features: wings on his head, back, hips, and a pair of glasses, 
 Clothing: simple scholar suit with green on the outside and white on the inside
-
-![Kiwi.png|400](/img/user/Photos/Kiwi.png)

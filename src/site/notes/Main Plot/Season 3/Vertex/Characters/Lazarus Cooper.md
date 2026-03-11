@@ -3,7 +3,7 @@
 ---
 
 # Lazarus Cooper
-★ Name: Lazarus Cooper
+★ Name: Lazarus Cooper![Cooper.png|400](/img/user/Photos/Cooper.png)
 ★ Alias: “Cooper,” “Coop"
 ★ Current Kingdom: [[Main Plot/Season 3/Vertex/Vertex\|Vertex]]
 ★ Kingdom Born In: Vertex
@@ -114,4 +114,4 @@ Eclipse and the others were kind enough to Cooper, he supposed. At least they tr
 - Notable features: What appears to be heterochromia but is actually just a cataract in his right eye, alongside rectangular pupils. His left horn is broken off.
 Also, obviously, goat legs.
 - Clothing: A dark, mourning tunic with red inlays, as he is one of Eclipse’s followers. A tattered burial shroud is loosely draped around his shoulders, a rose often being attached to it. It serves no practical use.
-![Cooper.png|400](/img/user/Photos/Cooper.png)![CooperAndDallas.png|360](/img/user/Photos/CooperAndDallas.png)
+![CooperAndDallas.png|360](/img/user/Photos/CooperAndDallas.png)
