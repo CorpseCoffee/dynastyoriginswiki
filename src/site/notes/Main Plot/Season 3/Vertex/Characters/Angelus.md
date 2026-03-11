@@ -3,7 +3,7 @@
 ---
 
 # Angelus
-★ Out of Character: Angelus![Pasted image 20260311024735.png|100](/img/user/Pasted%20image%2020260311024735.png)
+★ Out of Character: Angelus ![Angelus.png|100](/img/user/Photos/Angelus.png)
 ★ Name: Angelus 
 ★ Current Kingdom: [[Main Plot/Season 3/Vertex/Vertex\|Vertex]]
 ★ Kingdom Born In: N/A
